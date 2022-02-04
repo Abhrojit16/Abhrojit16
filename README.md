@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Abhrojit16
-- 👀 I’m a UX/UI designer
+- 👀 I’m a UX/UI researcher and designer
 - 🌱 I’m currently learning basics of coding so as to refine my design skills
 - 📫 How to reach me - abhrojit2013@gmail.com
 
